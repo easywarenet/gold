@@ -1,1 +1,1 @@
-Gold business is a reaal business
+Gold business is a real business
